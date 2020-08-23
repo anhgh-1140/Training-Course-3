@@ -1,7 +1,8 @@
 # Training-Course-3
 
 ## Ví dụ 1
-
+Nguyễn Ý Uyên
+Nữ
 ### ABC
 
 DEF
