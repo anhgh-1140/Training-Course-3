@@ -6,7 +6,7 @@ Huynh Thi Thuy Nga
 
 ## Tuổi
 
-24
+18+
 
 ## Nghề nghiệp
 
