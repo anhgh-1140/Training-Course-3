@@ -2,7 +2,7 @@
 
 ## Tên
 
-Nga-kun
+Huynh Thi Thuy Nga
 
 ## Tuổi
 
