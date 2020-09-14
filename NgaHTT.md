@@ -2,11 +2,11 @@
 
 ## Tên
 
-Nga-kun
+Nga-san
 
 ## Tuổi
 
-18+
+20+
 
 ## Nghề nghiệp
 
