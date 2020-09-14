@@ -2,11 +2,11 @@
 
 ## Tên
 
-Nga-kun
+Nga-htt
 
 ## Tuổi
 
-18+
+18++++
 
 ## Nghề nghiệp
 
