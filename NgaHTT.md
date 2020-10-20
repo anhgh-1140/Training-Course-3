@@ -2,11 +2,10 @@
 
 ## Tên
 
-Nga-kun
-
+##### Nga - chan
 ## Tuổi
 
-18+
+20 ++
 
 ## Nghề nghiệp
 
